@@ -1,3 +1,4 @@
-- 👋 Olá, sou a Malu.
+- 👋 Olá, sou a MARIA LUÍZA.
 - 👀 Estou cursando o 2° ano do ensino médio.
-- 😄 Pronouns: Ela/Dela
+- ✈️ Quero viajar e conhecer novas culturas.
+- 😄 Pronomes: Ela/Dela.
